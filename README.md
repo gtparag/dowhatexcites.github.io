@@ -1,5 +1,5 @@
 # dowhatexcites.github.io
-My LinkedIn: https://https://www.linkedin.com/in/paragnow/
+My LinkedIn: https://www.linkedin.com/in/paragnow/
 
 Instagram: parag_now
 
